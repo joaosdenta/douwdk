@@ -1,0 +1,595 @@
+诗凯麦（SCANDER）冰箱售后服务电话 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎（无转接人工在线）
+诗凯麦（SCANDER）冰箱全国统一售后电话： 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎(预约专享免等待)
+诗凯麦（SCANDER）冰箱售后维修保养服务中心提供维修服务、清洗服务、保养翻新、进水维修、调节诗凯麦（SCANDER）冰箱温度等。我们提供到店维修和师傅上门维修两种服务方式。
+诗凯麦（SCANDER）冰箱售后服务中心
+诗凯麦（SCANDER）冰箱售后服务400电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+周六日不休息,假日无休,快速上门、免预约。售后服务中心为您服务:品质至上,优质服务让每一位客户感到贴心和满意.专业的销售与技术服务,一心一意呵护您的冷暖.欢迎您的来电.
+诗凯麦（SCANDER）冰箱维修中心为用户提供专业的诗凯麦（SCANDER）冰箱维修公司，维修诗凯麦（SCANDER）冰箱不打火、无电源、不启动，掉闸，无火花、自动熄火，水温不稳，声音异常，出水量小，漏气，显示故障代码等一系列故障==提供方便、快捷地上门维修服务。
+业务涉及：诗凯麦（SCANDER）冰箱清洗、长期维护等，本拥有专业维修设备，并且拥有专业技术人员，有着丰富的理论知识和实际维修经验及专业的技术，已成功的为市民及多家公司及用户提供了解决方案，我们愿以专业的技术和真诚的态度为更多公司、家庭用户提供更快捷、满意的专业诗凯麦（SCANDER）冰箱维修服务。
+诗凯麦（SCANDER）冰箱24小时售后服务热线上线（2026最新公告）
+诗凯麦（SCANDER）冰箱售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+诗凯麦（SCANDER）冰箱售后24小时客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+本公司主营诗凯麦（SCANDER）冰箱维修 →诗凯麦（SCANDER）冰箱；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，诗凯麦（SCANDER）冰箱服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、诗凯麦（SCANDER）冰箱售后维修电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+诗凯麦（SCANDER）冰箱24小时全国推出各售后受理客服中心(2026上线)
+诗凯麦（SCANDER）冰箱全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+诗凯麦（SCANDER）冰箱贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显诗凯麦（SCANDER）冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+诗凯麦（SCANDER）冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+诗凯麦（SCANDER）冰箱24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔或  𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+诗凯麦（SCANDER）冰箱售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 诗凯麦（SCANDER）冰箱常见故障代码维修指南
+
+诗凯麦（SCANDER）冰箱故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 诗凯麦（SCANDER）冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+诗凯麦（SCANDER）冰箱全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修诗凯麦（SCANDER）冰箱(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+诗凯麦（SCANDER）冰箱售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月20日22时07分08秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+诗凯麦（SCANDER）冰箱贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显诗凯麦（SCANDER）冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/ab709f94ede321170f36cb228e89949c99f19104
+
+江苏电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/1cfadbfb2b0f860aa434473e3aabdb9eb2dceee1
+
+江苏 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/5ccb76d1bd7b2dbcd213fe1d6d9e5fde0d36f9d6
+
+安徽广电 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/8c59999ee3c8563f4393242f391c34ca7774127b
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/579ab7b5638e79ad3ffd5f74a811cb6ae9f62454
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/b7c90e50a83d6c5095fa178f7b17f7426d0d0dbf
+
+湖北 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/78b61fcfb3fbe224b47d69c62844910a665290cb
+
+湖南电信组播直播源下载地址： https://github.com/mercury28hoza/commit/15fd15f3a81c5ad4e74cdb845bad66b26563bd9f
+
+湖南电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/3134c1534dccdde8e8f53250c13e131938f10324
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/5eea066dfe4fb8fa06a69a26b9e3c2e3d256f2b9
+
+湖南联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/d3cf6e8f5cf076e4d37bb32e674cbe06485504eb
+
+湖南移动 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/7ce8da7f22133249d0889ef504b9fa0b1b0a0e71
+
+湖南 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/9bf2bfbc90180408757e7066a255888411056dd2
+
+重庆移动组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/9ca3a9c8c997aaac9ffb9a2b4e16c0d162d41ee1
+
+重庆联通组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/c47ed4d592810dea8692cc3cd2f9aed80da0c3d5
+
+重庆联通直播源下载地址： https://github.com/mercury281/cdqqza/commit/76686814f7183e6cbd1f91ef604c42a6f8f9be86
+
+重庆电信组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/7b0bdd3aa518b516349abf2bbbc95f5ee978e2f1
+
+重庆电信直播源下载地址： https://github.com/mercury281/cdqqza/commit/e68dc8d19e8204b71e955bf601bbd029ef08e53b
+
+重庆 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/6f5e0f273d1803bd5b4bf38faa19b1c1b18f67b5
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/f344f4a5187b0729388b5e47260819f79accaf96
+
+四川电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/2906df6a9f09df19734a4752c9f5017293503bba
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/8a5fe3935f5053bcb2aada61dbf3830e37374c85
+
+四川广电 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/1b4cad2512ca1978cd66bd609b0b4be8fc9ee71e
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/c9b7a811464aaadca6587e85c20bc551c5b9f4bd
+
+四川联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/7ece194612b4e6a65ed062bf370240fc10cd1a49
+
+四川 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/dbc019b69240003e7594afd639625ef26ab58df6
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/83868bec9b199566af16333459516507a96c0206
+
+云南移动 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/bbef2ed328d66c61915b391994fa4ad24be1a2b5
+
+云南 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/fd8e2fffce2c1aa358bde49fb65acb0f27883d0d
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/fb84b8365fc39030fc5f63f3935da5473c99fd30
+
+贵州移动 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/a62c859cdffdfbbfe285a7205c2c9c6bc0b3e74f
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/8370ba36988cf7fa655d652650f7d53fb609dddd
+
+贵州联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/e5a1704afc15de4ca8ca018ec6212a5c29329e1f
+
+贵州 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/f25d155a2bc48f46008f89ef5c3dfd163ebfb9f1
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/aadb6947ad8a03c383449913b5adcbc469178443
+
+福建联通 IPTV 直播源下载地址： https://ub.com/mercury281/cdqqza/commit/ed0b44e605e2e446558345ef00c19c079653a33f
+
+福建移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/ed0b44e605e2e446558345ef00c19c079653a33f
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/785bb72167a766abe93dea64a4e6f428c8389c43
+
+福建电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/86c8d90b8a3366ab73dfa1ed0838e7216f60c755
+
+福建 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/172dd2a257bc4731d6cb1426999ef642c980bc04
+
+安徽移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/c180a325436ee15d43b0cc5b639a768e025adced
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/ba2041ae13b575387fb00dc1aed64c9a8c060eda
+
+安徽电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/ddda890ab1a59522eef5a62c34cbdbba6dd3b7eb
+
+安徽联通 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/26fd98dc21ff3dd0579232817afe3b2845ec78bb
+
+安徽 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/f0590eca6b51135b69f15e44b4bd475c3f6a34f9
+
+陕西地方台直播源下载地址： https://github.com/mercury281/cdqqza/commit/be75da0a6724828c5f2cea590cc525c81f402cd0
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/14826818c61e66307ee05a4f60cbd75d65be6fab
+
+陕西电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/36da9d8f56e4037d4c864206098aa1ab75f11222
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/98667dd26dfdbc918e561d60dc82338adbdd8838
+
+陕西移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/b415afc78a52ba1df6f3a58064fd41fa4278b4ab
+
+陕西 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/b782f578da8dd9a78cd1c37c3ab27ac910f2e91e
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/56379f4d6d29e267d800a78997cedbda23055a16
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/e4e56dd42ee336a189814492f4df4c465655c7f5
+
+甘肃 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/69fc723e8cdbf5ca5090f44c47b1155fdd70fc8b
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/39b6f441d6f5cc328fd89ed3bc20430609212672
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/a5d6e077f756dac5fd9452424be89ceee0268025
+
+山西联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/57ee0365a45dcfec21874670323005e1f0abd669
+
+山西 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/7df257347f2653dfc3eaf04d7bc7cca6676c9550
+
+天津电信组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/2f5ddb9f15151818a12b1486d0003b4ea6c37fc4
+
+天津联通组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/3b82380aa45119d11a08b5ff1d6ec0bd9d922a1b
+
+天津 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/d49b648d0913c85437fb72166b2ba810bbafecbe
+
+上海移动直播源下载地址： https://github.com/cbluen/vzhokw/commit/7f534a1df677df1a4058a9bd48113caf4b110fdd
+
+上海联通组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/7aa5cd078f07a3e0721b5c1d1e30546d9acca00d
+
+上海联通直播源下载地址： https://github.com/cbluen/vzhokw/commit/f880f5c15e2ef78742acf7888388f9194c59259e
+
+上海电信组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/54c4e1ff71b6bd0c476ec4dec6d7046b76d546d1
+
+上海电信直播源下载地址： https://github.com/cbluen/vzhokw/commit/e01137a84332f41a1aff4f1440f11d414b999c08
+
+上海 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/50b5deeded349ae31c53c47cdf694256810e84f5
+
+北京移动 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/0ab6dc63aef3299c435ed10c7193612796becb50
+
+北京移动组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/1ade8db940bb2048a4900fe14874bad3a4649ec1
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/5e988c97ca37b6afb74f44799c21b6e384f2d954
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/30c0ae216d61c9269b24411b9fb672b35b44b812
+
+北京联通 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/33ff1f5b086de12d8e4079c0acfd8661189ba9e8
+
+北京 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/5629dd131339ef0a569f5776c8dd00bcd9d29d2d
+
+部分地区的移动可全网通用： https://github.com/mercury281/cdqqza/commit/5035fb19ab5ea90502daea3d0ba4a0381b61f908
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/cbluen/vzhokw/commit/738413f9d66c3f0fb8c5679557b243c18a24b3aa
+
+广播电台下载地址： https://github.com/mercury281/cdqqza/commit/765faca0cedd5f3b7c83d0c712df8cbd3058f9cc
+
+国内景区直播源下载地址： https://github.com/cbluen/vzhokw/commit/33db885027baf62593220a47e190e1ba67cd9987
+
+轮播华数黑莓下载地址： https://github.com/mercury281/cdqqza/commit/f7b3f446cebecd86c11faabc8f9e8719d5479c24
+
+台湾香港澳门电视台直播源下载地址： https://github.com/cbluen/vzhokw/commit/bacdcdd2f005e94ebfd5f355ee4c7ae17a35c66d
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/mercury281/cdqqza/commit/0872e52267f7f28c42763612211fb73a2b877659
+
+国外电视台直播源下载地址： https://github.com/cbluen/vzhokw/commit/197bbbd24c59a903cae5f5f96bea12f681210300
+
+卫视地方台安徽农大下载地址： https://github.com/mercury281/cdqqza/commit/acc07fe229eefef2b1fc023f484a2933e9b3a5b6
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/cbluen/vzhokw/commit/3c1780c8c8748fcbd5b31a90d72c9b85b583cf27
+
+卫视上海源下载地址： https://github.com/mercury281/cdqqza/commit/999be4e80fcdc6999d38eb54a7e89f497c749b9d
+
+卫视重庆广电 下载地址： https://github.com/cbluen/vzhokw/commit/75f724a4ed0826fb42206f7c1c036748ad6a5630
+
+卫视百视 TV 下载地址： https://github.com/mercury281/cdqqza/commit/e5f0cb0dfbb26e8f0b89bdb815cbd76250606965
+
+移动 IPv6 直播源下载地址： https://github.com/cbluen/vzhokw/commit/4799ab61050053578aaabe82627e43a9c1355448
+
+国内电视台 IPv6 直播源下载地址： https://github.com/mercury281/cdqqza/commit/e38b7db8086995bb41647e9bab08b720520c8362
+
+各大卫视、上千个地方台： https://github.com/cbluen/vzhokw/commit/0008b1f60d2ca92635a533c7fa1f6700947c63b0
+
+国内电视台直播源下载地址： https://github.com/mercury281/cdqqza/commit/1fa28961d6b43f1c7b7dd61fcac4c00c21ec566d
+
+全国可用直播源： https://github.com/cbluen/vzhokw/commit/b29eec95453cbda2b93bfc0bd39e70e3da83528b
+
+包括完整内容所有已知频道： https://github.com/mercury281/cdqqza/commit/51c74e25f90d1ca9ca8fb516a390dddcc77f3c30
+
+除成人内容以外的已知频道： https://github.com/cbluen/vzhokw/commit/80658c784cdf77fc4a97f7da6df9110be67696ae
+
+收集来自世界各地公开可用的 IPTV： https://github.com/mercury281/cdqqza/commit/ad3189fe8051755d9d6a8ddd90367f747be69fee
+
+稳定地址： https://github.com/cbluen/vzhokw/commit/da6bafefd353b243fbdb49a8d250d692a5191f4d
+
+2026-06-20 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/mercury281/cdqqza/commit/f1c2f9211e422fa0174862cc378dcde3da5af6f6
+
+2026-06-20 更新 IPTV 工具： https://github.com/cbluen/vzhokw/commit/50bb4accda025696cf023b54b1076c5288288d0f
+
+2026-06-20 更新世界各地 IPTV 频道： https://github.com/mercury281/cdqqza/commit/97bdad6126734f09129e98f52b8e5b9deba24742
+
+2026-06-20 更新全国可用直播源： https://github.com/cbluen/vzhokw/commit/b3b2949e4f85e7f6bf706baed5069740de24427c
+
+新增各地运营商的 IPTV 地址： https://github.com/mercury281/cdqqza/commit/f5f294852a1abdb8691be73c91e3d67da6ecd196
+
+插件推荐： https://github.com/cbluen/vzhokw/commit/02871d082e15a269198b7c321414c12e84c8553a9
+
+视频教程增加： https://github.com/cbluen/vzhokw/commit/30d5874499e5a54269198b7c321414c12e84c8553a9
+
+咪咕源失效： https://github.com/cbluen/vzhokw/commit/30d5874499e5a54a0f2cc94355ed13c4be14990e
+
+2026-06-20 更新各地运营商 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/65fb67a4073782b38c60cd43d5a7366e7a7a5009
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/cbluen/vzhokw/commit/820792f16502a3f4c010619b0c2a7028014c2266
+
+新增辽宁广电直播源： https://github.com/mercury281/cdqqza/commit/5663e0310ceb53893429f62c217138cd0a73639e
+
+新增江西广电直播源： https://github.com/cbluen/vzhokw/commit/118ee2631ade5999cec6de1f0ac10e6db345a1f3
+
+新增湖北广电直播源： https://github.com/mercury281/cdqqza/commit/776aa222df10e33803d4326cc8708872e7218b13
+
+新增中国广电 cctv + 卫视直播源： https://github.com/cbluen/vzhokw/commit/46a9190948026404401ac97a16171663786963af
+
+新增辽宁电信 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/2d62885730d430018ec02758083cb5e996c51494
+
+2026-06-20 更新台湾香港海外直播源： https://github.com/cbluen/vzhokw/commit/a1b27deaa4f5d7c10fa009879dd893c470d346bf
+
+新增辽宁移动直播源： https://github.com/mercury281/cdqqza/commit/55c49acc746f015b4ce7787f1087651afa9a2c9f
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/15424e9724cae35bd32422b357b670cae02f39f0
+
+新增广东联通 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/f537d9a7d3941b14d336f7bb0cee3209303b334b
+
+新增四川广电 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/a787c432130ca49511abe789ee4d02bdc367adb4
+
+新增云南电信 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/617fc5195abf5dea1ec8b49f80ea68138c20af75
+
+2026-06-20 更新国内电视台直播源： https://github.com/cbluen/vzhokw/commit/7954f09923f177d25c377f2b4cf1c72a470ee8c2
+
+新增福建电信 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/cd3ab49d3ddcbae7b1aa80f13af74b88649407a8
+
+新增天途云 CCTV + 卫视： https://github.com/cbluen/vzhokw/commit/df29898cd9c70b6451f405bdd66440c45d619e3b
+
+新增腾讯云 CCTV + 卫视： https://github.com/mercury281/cdqqza/commit/63ea7cb78012608665eb2d88a2be9d13af010038
+
+新增 CCTV 付费频道直播源： https://github.com/cbluen/vzhokw/commit/c60d403acb1dc5239ef5fa6b19d49f9c9d9ab016
+
+新增广播电台： https://github.com/mercury281/cdqqza/commit/b98e12903ed4c533e1d4041ee9420ded5a33be7e
+
+2026-06-20 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/cbluen/vzhokw/commit/04a711e2e790c82b66dbe26e166089976795c1c2
+
+2026-06-20 更新 台湾香港海外直播源： https://github.com/mercury281/cdqqza/commit/e481e3e32f7f918cec40dd01483adae785e72f9f
+
+2026-06-20 更新 国内电视台直播源： https://github.com/cbluen/vzhokw/commit/1fd5ba173cc67c8f02e2d0b65d3cd8caa346a097
+
+国家直播源： https://github.com/mercury281/cdqqza/commit/8c0c902cd44a6c2075c7d61caab0b4aa6aa80610
+
+直播源： https://github.com/cbluen/vzhokw/commit/7c95a6d65ed6cd09218a1cbd54f64d59a797a86b
+
+影视剧场： https://github.com/mercury281/cdqqza/commit/abc8185c8f98e0814ee4f2865087b9f824d6c528
+
+台湾香港澳门： https://github.com/cbluen/vzhokw/commit/8d0a2683db678ffadf64dd010673f55ce894812f
+
+国外电视台： https://github.com/mercury281/cdqqza/commit/21c83fa6e19812f49a02c72c5ab60e79c8ca0abe
+
+国内电视台： https://github.com/cbluen/vzhokw/commit/9b29e9d8656226f7b0f1f02165d77860b113379c
+
+更早期 2026-06-20 更新： https://github.com/mercury281/cdqqza/commit/f0f1ed26eb528e5392b3fdda9365e557f7515887
+
+各地运营商 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/ebca0dd6fca8e60afb773654215417dc0a43e5b6
+
+全国可用直播源： https://github.com/mercury281/cdqqza/commit/bd9572396de03960670d3263bfc26cfece608b50
+
+2026-06-20 更新： https://github.com/cbluen/vzhokw/commit/06f96135ae6f9f40b76f6d0c6195f856350c5319
+
+赞助者： https://github.com/mercury281/cdqqza/commit/a577d93c18588a0eb4d8d2528df30d3f389dca48
+
+文章： https://github.com/cbluen/vzhokw/commit/cb8f06df911e85c961fb0ab49910e5b882a91f2a
+
+视频教程： https://github.com/mercury281/cdqqza/commit/1c633775189feb121bbd3d1c470413795e78d1aa
+
+插件： https://github.com/cbluen/vzhokw/commit/ecae67c82cadbc36da4d20f8216c0fa459298488
+
+工具： https://github.com/mercury281/cdqqza/commit/2bf6e2e06b33eaa436afc801095f9150b6be191d
+
+URL： https://github.com/cbluen/vzhokw/commit/b810367c7214abdf2604daf0609d42a6fc9c1828
+
+目录： https://github.com/mercury281/cdqqza/commit/3b0f1af9cd2ed4047bca660b2876a12730c30414
+
+喀麦隆直播电视频道： https://github.com/cbluen/vzhokw/commit/b4e6951a41c030f119801b31653964a50c4619f9
+
+阿富汗直播电视频道： https://github.com/mercury281/cdqqza/commit/e8f334191f84a312011d2d176c991ce49fc9b089
+
+海地的直播频道： https://github.com/cbluen/vzhokw/commit/91444c4c17b9b98550d50a45f9196cfbc9e2d3ab
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/mercury281/cdqqza/commit/e45c827687dfeead18ed772df109550a96df796d
+
+厄瓜多尔直播频道： https://github.com/cbluen/vzhokw/commit/ab426f1b7337b3ee7cecabbe35d792fce9ccf2c5
+
+玻利维亚直播频道： https://github.com/mercury281/cdqqza/commit/6caad21d36482dc8c0bed81220c7110a033e35ff
+
+萨尔瓦多直播频道： https://github.com/cbluen/vzhokw/commit/eba21282faed46c1652e60f385df8698df7d026d
+
+危地马拉直播频道： https://github.com/mercury281/cdqqza/commit/acc007c8f4abd3c2e5c141340d409880376457ed
+
+洪都拉斯直播频道： https://github.com/cbluen/vzhokw/commit/5c1e5fbe74835b3ad50b2af5b92b396bc8ffba1b
+
+多米尼加共和国直播频道： https://github.com/mercury281/cdqqza/commit/cc8a25d05ece84b14f917eca13ccfe78af7a6242
+
+哥斯达黎加直播频道： https://github.com/cbluen/vzhokw/commit/e1f49b73f66ad90c8d56b77945f9b5df50e27f86
+
+来自世界各地的个电视频道和个摄像机： https://github.com/mercury281/cdqqza/commit/dd868a318eb41391ebd606b06330bd705258015a
+
+免费数据库： https://github.com/cbluen/vzhokw/commit/b4d4347fdbb27ae9acb4ffdb6286fcc8d1abd3c7
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/mercury281/cdqqza/commit/fd6abb6514220b9769c23cfcd8682e2a275560f7
+
+超过个国家地区的个高清频道和： https://github.com/cbluen/vzhokw/commit/22eea3ecce8192c68f429b5f41346e122669fba2
+
+超过个直播电视频道影视节目： https://github.com/mercury281/cdqqza/commit/c06432e7bc634195e963b2de75f886bea9ba42ca
+
+提供商列表： https://github.com/cbluen/vzhokw/commit/26c9b57ba6db1d83d12cb0cfbea49a9630ec9db5
+
+提供者： https://github.com/mercury281/cdqqza/commit/d34992f26a901c2bbe475a4b6563a1c5342335cf
+
+客户端服务器媒体播放器： https://github.com/cbluen/vzhokw/commit/bfed427de0b40d3b1f41d1b9f9c8b0c85a3ec067
+
+支持播放列表文件： https://github.com/mercury281/cdqqza/commit/d0b30e4ad2ae0b99635784f104a9320d450ce0f0
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/cbluen/vzhokw/commit/a8fd707ec2e4bf410c01d416f26d155f13e4e850
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/mercury281/cdqqza/commit/32872a998c3b440cca5cd6ede1864bb040861917
+
+点 即可： https://github.com/cbluen/vzhokw/commit/95328d99566da075efbd3d3344204bc29410f027
+
+第三行不用管： https://github.com/mercury281/cdqqza/commit/b51f6a758f4bfaabb817b6eab3859d756160dd7e
+
+第二行输入上面给你的地址： https://github.com/cbluen/vzhokw/commit/2763c5e9568b681ee84b8fa7e53017201a117b84
+
+第一行随意输入一个名字： https://github.com/mercury281/cdqqza/commit/6b1bfd4304efcda0c15c0ae746dc51d26c3cc3f3
+
+选择 远程播放列表文件： https://github.com/cbluen/vzhokw/commit/b4024e4e0ca3fb396f9eeb1e1cd491e462a77d61
+
+打开 点击 号： https://github.com/mercury281/cdqqza/commit/ccb62d47497897184d577c28c2ce0e9448c0fa9b
+
+食用指南： https://github.com/cbluen/vzhokw/commit/9c7f22c319c768ddc343f94ad59079a72e860171
+
+适用于 macOS 的现代媒体播放器： https://github.com/cbluen/vzhokw/commit/0b59388b2d03c89883c87378e5f5f055595e5611
+
+直播电视和广播客户端插件： https://github.com/mercury281/cdqqza/commit/6dc9b0fd45702d7d9fb9bdba045ec58f8e6d9a49
+
+具有库支持的免费跨平台媒体播放器： https://github.com/cbluen/vzhokw/commit/cd063907929d23a4eae76e7a97a2cf9a2ae86fc9
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/mercury281/cdqqza/commit/4e817045b36248b3362ff1741589cc5f5816cc93
+
+支持 IPTV 流的应用程序： https://github.com/cbluen/vzhokw/commit/d36235bb4ca77bdb97410d571467774379805585
+
+工具： https://github.com/mercury281/cdqqza/commit/1951e4be83eda2df763f5357d8e1c4dfb3ee0372
+
+轮播华数求索爱奇艺 2026-06-20 更新： https://github.com/cbluen/vzhokw/commit/c9b807d6c6990aad772ff4543209717366289a5f
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/mercury281/cdqqza/commit/52606a2d309794f40f71f9c03a2353ba97f15779
+
+台湾香港海外直播源 2026-06-20 更新： https://github.com/cbluen/vzhokw/commit/2efa7503f783df1bf3ec94313c034bf7f02281ce
+
+各大卫视、上千个地方台： https://github.com/mercury281/cdqqza/commit/5a0ed6393400011cf8ba6fc6f643f022ede9ed29
+
+国内电视台直播源 2026-06-20 更新： https://github.com/cbluen/vzhokw/commit/db431773c58760c5bd4fee93bf18dac77977f419
+
+卫视腾讯云： https://github.com/mercury281/cdqqza/commit/74249c76cc395f18a89086f1b519ae3ee2779458
+
+卫视平顶山学院教育网： https://github.com/cbluen/vzhokw/commit/0fb043c05e7dee6c3edb6e59bb2e5e6b549e90b7
+
+卫视天途云： https://github.com/mercury281/cdqqza/commit/c00e61eefc99226adfe7b0247b5a5877eb5ef36d
+
+卫视地方台安徽农大： https://github.com/cbluen/vzhokw/commit/fe27652387173068a7612394ffd05c11b1e6363a
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/mercury281/cdqqza/commit/d00a8ef4295979b64d3c5fd9511e94e3828c9c9d
+
+央视卫视广西移动直播源： https://github.com/cbluen/vzhokw/commit/7e838333f14e2fb8531b6c532c203ee920de0416
+
+付费频道直播源： https://github.com/mercury281/cdqqza/commit/7efca9188a6c318e58a46ed93f0216fe0af289ae
+
+国家直播源多个全部有效： https://github.com/cbluen/vzhokw/commit/60150d96bb19698aeb73106835a6f07f4b5d2cc2
+
+直播源全部有效： https://github.com/mercury281/cdqqza/commit/62cebce046a0bbebfe843acb6964e691da036ef5
+
+全部有效： https://github.com/cbluen/vzhokw/commit/5a9af24a0cd9860ebfaab7d52033a257ccc71f8d
+
+直播源全部有效老电脑别用： https://github.com/mercury281/cdqqza/commit/647ad396da1309a652189844f19f150c283253d8
+
+影视剧场全部流畅： https://github.com/cbluen/vzhokw/commit/b6e912a0c29c40090e9af74a7327f1d719c46d65
+
+全部可用： https://github.com/mercury281/cdqqza/commit/747298ca1f10ddc141495c19863d04c06c28343b
+
+我的播放源： https://github.com/cbluen/vzhokw/commit/9432a672853afc3725a3702c395610ccdfc681d9
+
+其他直播源 不确定有效性： https://github.com/mercury281/cdqqza/commit/7f2070c8dfc1d4feedb1efd2519cb06713f50f18
+
+新疆电信组播 IPTV 直播源下载地址： https://githom/mercury281/cdqqza/commit/96528df44839e8c37b1845c9a6c43d15cb32b0d9
+
+新疆 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/aef922f2470dc069e222908d71ea44aeba3f48a7
+
+内蒙古联通 udp 组播下载地址： https://github.com/mercury281/cdqqza/commit/d5174c765d0f0bfc4fef3d0b2732d464099f6576
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/e732797019d3df33e9229070f2ea224f066b75d4
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/41c835ca520150e76fcdaf9158331aac8b60a5e7
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/d29ad3e7540af87c4f8b4471eee4b24c4948f99a
+
+内蒙古 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/cd831ff0181222d6316ae4405eee6e88651a1652
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/62c63d541474d2e7cd88638dd1d14ae271c505c4
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/616988d310458d843da843c7ad281c78fb149bd1
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/b6f031b4f2ad4355e69378e528911d06900cb4e4
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/62e91885e10503f894c066fa2c3a6ff8efd9ce80
+
+黑龙江 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/ddefb718b56c791b77cc55945b8a22b46c334002
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/e92545d025a1f905fdf6e02f4c475736d21fe265
+
+吉林 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/2ab9eb9a22a294d1495f35960c3c36c9041add2d
+
+辽宁移动直播源下载地址： https://github.com/mercury281/cdqqza/commit/74143bf0de863b29d1b47e42db5ca321b687d535
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/3c1a8f8e3042ef8246047f5e9cb1b90df3711433
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/a069a2cbf1d1be8aefbb637f5e23253881577a17
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/f0086136f68ca09b30a80bdb6e35ac6df20b18a1
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/bfd029fd81bdcb8ddeb4cd03e8cd3112e0eabcc2
+
+辽宁 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/753d204ed5d1833f760abe20d9e2cfbe57e4b0c0
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/mercury281/cdqqza/commit/ba1969bbbc184cd6e9409754ca9222884b201865
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/cbluen/vzhokw/commit/75a3af9c12ece1b5c9fcbf0adee1b13c72c95021
+
+浙江联通 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/970c6fc7d0db7910932c4d28cf624596e99674e3
+
+浙江移动 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/47a189762f5fb1fe886ccff404d26f4cdaa75405
+
+浙江 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/6f5c2b0b74e52320e74bae8cd684e41b1692144e
+
+江西联通 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/0c567f8ee7abcaa6565d3024cefd87b8af545695
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/56a9aaff86e86ade17ae970d85c939f52408fa5d
+
+江西电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/31a82854534ebcb3e8b170fe189b3a197fac024e
+
+江西移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/b51726ebb88cb4727dc3d935a30fb39bba3d5ce6
+
+江西 IPTV 直播源： https://github.com/cbluen/vzhokw/commit/9dbd5f04be7a01913afe16b6312a956388044101
+
+江苏移动 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/7c12eb920c10353ac16385ab1b4d5f388bf3fa06
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/69ee6d9d8f606a2e3bf15cd8e2c11828964c4746
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/abe18d3091f13e756beb05b6c6ad6a4de27696e9
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/9f07fa7ff666a94eda892c740b8bf77e26d1c315
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/d0385de3f95d7a87d4a583c50ac0f31621f0c2c0
+
+江苏电信 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/579e8a29a3b58c31ea3755480de9d4592ca677fe
+
+江苏 IPTV 直播源： https://github.com/mercury281/cdqqza/commit/42d78d99de2f21640148e21e79f532b134eaa996
+
+安徽广电 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/9bd263e61b7395e1559d7f8ff1adf07e10e9ab5b
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/mercury281/cdqqza/commit/10b00e6d61e18f162f14ca5faa852c13dff99610
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/cbluen/vzhokw/commit/d8427256dae13c7d6c6bf518b568f0f2b4f3b12e
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月20日22时07分08秒
+来源：https://github.com/mercury281/cdqqza/commit/c08ac25fd04dbf212922a9127a6302ce61c4d267
+
+来源：https://github.com/cbluen/vzhokw/commit/fc600a0b1374c732b32b667f479e4f87541f8bcf
+
+来源：https://github.com/mercury281/cdqqza/commit/c9288dee826cd18e4ec7ea0228c0f35881f51403
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月20日，22时07分08秒
